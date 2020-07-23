@@ -7,23 +7,23 @@ Sound Opinions gathers people who love music. Discover, debate, learn about pop 
 ## Some of our favorite episodes
 
 ### Rush and Opinions on Kanye West
-[&#160;](/show/535?autoplay)
-[&#160;](https://itunes.apple.com/us/podcast/535-rush-opinions-on-kanye/id94793843?i=1000363739463&mt=2)
+[Play Now](/show/535?autoplay)
+[iTunes](https://itunes.apple.com/us/podcast/535-rush-opinions-on-kanye/id94793843?i=1000363739463&mt=2)
 
 
 ### Robert Plant and TV on the Radio
-[&#160;](/show/469?autoplay)
-[&#160;](https://itunes.apple.com/us/podcast/469-robert-plant-opinions/id94793843?i=1000354328933&mt=2)
+[Play Now](/show/469?autoplay)
+[iTunes](https://itunes.apple.com/us/podcast/469-robert-plant-opinions/id94793843?i=1000354328933&mt=2)
 
 
 
 ### True Adventures of Rolling Stones, Lupe, and Bjork
-[&#160;](/show/479?autoplay)
-[&#160;](https://itunes.apple.com/us/podcast/479-true-adventures-rolling/id94793843?i=1000354328889&mt=2)
+[Play Now](/show/479?autoplay)
+[iTunes](https://itunes.apple.com/us/podcast/479-true-adventures-rolling/id94793843?i=1000354328889&mt=2)
 
 
 ### Run the Jewels
-[&#160;](/show/481?autoplay)
-[&#160;](https://itunes.apple.com/us/podcast/481-run-jewels-opinions-on/id94793843?i=1000354328860&mt=2)
+[Play Now](/show/481?autoplay)
+[iTunes](https://itunes.apple.com/us/podcast/481-run-jewels-opinions-on/id94793843?i=1000354328860&mt=2)
 
 Or [browse the full catalog](http://www.soundopinions.org/episodes).
